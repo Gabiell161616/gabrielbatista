@@ -9,6 +9,4 @@ Meu nome é Gabriel
 
 meduna.gabriel@escola.pr.gov.br
 
-@gabrielbatista
-
 ![](https://media.tenor.com/-CfhczC_cREAAAAM/angai313-spongebob-sad.gif)
